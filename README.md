@@ -1,0 +1,2 @@
+# samruddhi
+GITHUB FIRST REPO (IDEA LAB)
